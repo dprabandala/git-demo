@@ -1,1 +1,1 @@
-jai srimannarayana 
+jai sri rama
